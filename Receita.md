@@ -1,0 +1,1 @@
+Misturar todos os ingredientes na panela em fogo médio, após borbulhar abaixe o fogo e mexa até o ponto desejado.
